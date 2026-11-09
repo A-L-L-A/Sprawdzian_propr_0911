@@ -1,0 +1,1 @@
+# Sprawdzian_propr_0911
